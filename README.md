@@ -1,3 +1,2 @@
 # Jubaedilah
-Digital Creative And Marketing Agency
-shd101wyy.markdown-preview-enhanced
+Digital Creative And Marketing Agent
